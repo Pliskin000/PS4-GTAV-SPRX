@@ -1,2 +1,1 @@
-PS4 GTAV SPRX
-credit by mizdx
+ps4 gtav sprx credit by mizdx
